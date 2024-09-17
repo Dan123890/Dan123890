@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Dan123890
-- 👀 I’m interested in ... hacking 
-- 🌱 I’m currently learning ... hacking 
+- 👀 I’m interested in ... graphics 
+- 🌱 I’m currently learning ... 
 - 💞️ I’m looking to collaborate on ...any professional 
-- 📫 How to reach me ...07063858077
+- 📫 How to reach me ...
 - 😄 Pronouns: ...he
 - ⚡ Fun fact: ... interesting 
 
